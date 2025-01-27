@@ -3,6 +3,7 @@
 - Joseph. I like green. [website](https://www.jvcasillas.com)
 - Nuria. My fav color is also green. [our dept] (https://span-port.rutgers.edu/)
 - Joseph. I like green. [website](https://wwww.jvcasillas.com)
+- Kaylee. I like blue. [website](https://www.google.com) 
 - Eva. Pink. [website](https://span-port.rutgers.edu/welcome)
 - Jorge. I like red. [website](https://www.https://antoniooyarzun.cl/tienda/?v=4eab0849318c)
 - Yhosep, I like blue. [website](https://www.yhosepbarba.com)
