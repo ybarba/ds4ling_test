@@ -7,7 +7,7 @@
 - Kaylee. I like blue. [website](https://www.google.com) 
 - Eva. Pink. [website](https://span-port.rutgers.edu/welcome)
 - Jorge. I like red. [website](https://www.https://antoniooyarzun.cl/tienda/?v=4eab0849318c)
-- Yhosep, I like blue. [website](https://www.yhosepbarba.com)
+- Yhosep, I like blue. [website](https://www.yhosepbarba.com) This is my trying
 - Quartz. I like orange. [mylinkohgoditslong](https://sites.google.com/scarletmail.rutgers.edu/quartz-colvin-personal-website/home)
 - Merlin. I like black in green. [ho-ho](https://en.wikipedia.org/wiki/Merlin)
 - Valeria. Violeta. [website](https://unabridged.merriam-webster.com/unabridged/winsome)
