@@ -1,8 +1,9 @@
 # ds4ling_test
 
-- Joseph. I like green. [website](https://wwww.jvcasillas.com
+- Joseph. I like green. [website](https://www.jvcasillas.com)
 - Nuria. My fav color is also green. [our dept] (https://span-port.rutgers.edu/)
 - Joseph. I like green. [website](https://wwww.jvcasillas.com)
+- Yhosep, I like blue. [website](https://www.yhosepbarba.com)
 - Quartz. I like orange. [mylinkohgoditslong](https://sites.google.com/scarletmail.rutgers.edu/quartz-colvin-personal-website/home)
 - Merlin. I like black in green. [ho-ho](https://en.wikipedia.org/wiki/Merlin)
 - Valeria. Violeta. [website](https://unabridged.merriam-webster.com/unabridged/winsome)
